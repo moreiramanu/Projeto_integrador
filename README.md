@@ -1,11 +1,26 @@
 # 🍓 MORANGUINHO 🍓
 
-![Moranguinho](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExZzI3NDh6dm1uaXJ3Ymt2cTNtZ3o1Y3FxdjA5N3hzc3pzZjkwMTU2YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/jdqhBgJRHz33Svf6r9/giphy.gif)
-
 🍓 Moranguinho, Moranguinho  
 
 Ela é bem pequenininha  
 E também é bem fofinha  
-De alegria 🍓
+É uma fruta recheada  
+De alegria  
 
-...
+É o segredo pra fazer voar  
+Tão alta ficar  
+Ela é sua amiga  
+Basta telefonar  
+
+(Moranguinho, Moranguinho)  
+Ela é bem pequenininha  
+(Moranguinho, Moranguinho)  
+E também é bem fofinha  
+É a Moranguinho  
+
+É uma festa  
+Vem brincar  
+Vem sonhar  
+Moranguinho 🍓  
+
+---
